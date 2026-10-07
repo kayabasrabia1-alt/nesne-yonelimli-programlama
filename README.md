@@ -1,0 +1,19 @@
+
+<img width="800" height="540" alt="Hesap_Makinesi_alma_testi-ezgif com-video-to-gif-converter" src="https://github.com/user-attachments/assets/d58529af-8daf-4e37-b448-20c2f87945de" />
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
